@@ -1,1 +1,1 @@
-# getting-it-done-privacy
+# WebReg2Cal Privacy Policies
